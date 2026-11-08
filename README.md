@@ -1,0 +1,1 @@
+# Y-k-da-ma-irk-ti-n-veb-sayt
